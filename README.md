@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @TedVitkovski
+- 👀 I’m interested in coding and life.
+- 🌱 I’m currently learning how to start a business
+- 📫 How to reach me: ted.vitkovski@gmail.com
